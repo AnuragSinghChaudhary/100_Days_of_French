@@ -1,5 +1,5 @@
-#100 Days of French Learning Challenge
-##Daily Schedule for Learning French
+# 100 Days of French Learning Challenge
+## Daily Schedule for Learning French
 
 
 Here's a detailed day-by-day schedule for your 100-day French challenge. Each day will have a focus on different aspects of language learning, with activities that should take about an hour to complete. The schedule progressively builds up your skills in vocabulary, grammar, listening, and speaking.
